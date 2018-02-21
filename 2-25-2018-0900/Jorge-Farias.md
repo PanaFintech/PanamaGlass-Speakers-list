@@ -4,7 +4,7 @@
 
 ## [Panama Blockchain Embassy](https://embassypty.com/en/)
 
-## [Topic: Panama Blockchain Embassy
+## Topic: Panama Blockchain Embassy
 
 ### Time: Sat Feb 24th Sun Feb 25th 9:00am
 
