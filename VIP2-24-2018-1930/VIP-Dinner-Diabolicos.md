@@ -6,6 +6,6 @@
 
 ## Time: Sat Feb 24th 8:00Pm 
 
-#### Pick up point is at the Holiday Inn at 8:00Pm
+### Pick up point is at the Holiday Inn at 8:00Pm
 
 ### Attire: Casual
