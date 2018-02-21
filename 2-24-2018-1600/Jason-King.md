@@ -6,7 +6,7 @@
 
 ### Topic: Academy
 
-### Time: Sat Feb 24th 4:00pm - 4:30pm
+### Time: Sat Feb 24th 4:00pm 
 
 #### Achievements:
 
