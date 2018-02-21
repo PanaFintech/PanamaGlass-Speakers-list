@@ -6,7 +6,7 @@
 
 ## [Topic: Panama Blockchain Embassy
 
-### Time: Sun Feb 25th 9:00am
+### Time: Sat Feb 24th Sun Feb 25th 9:00am
 
 #### Achievements:
 
