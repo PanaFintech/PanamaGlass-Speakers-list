@@ -10,12 +10,12 @@
 
 #### Acheivements:
 
+  * Co-Founder of Coinapult
 
-Co-Founder of Coinapult
+  * Advisor to [Dash](https://www.dash.org/)/[Bitt](https://www.bitt.com)/[TigoCTM](https://tigoctm.com/)
 
-Advisor to Dash/Bitt/TigoCTM
+  * Partner of [300E](https://300eholdings.com/)
 
-Partner of [300E](https://300eholdings.com/)
 
 #### Links:
 
