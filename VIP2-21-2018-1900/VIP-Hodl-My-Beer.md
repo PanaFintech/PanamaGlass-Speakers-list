@@ -6,3 +6,10 @@
 
 ## Time: Wednesday Feb 21st 7:00pm
 
+### Music:
+
+ * DJ Mausi 
+ 
+ * Antonio(Saxophone) 
+
+ * Solo Sanchez 
