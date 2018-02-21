@@ -8,9 +8,23 @@
 
 ### Topic: Initiating comments
 
+#### Acheivements:
+
+
+Co-Founder of Coinapult
+
+Advisor to Dash/Bitt/TigoCTM
+
+Partner of [300E](https://300eholdings.com/)
+
+#### Links:
+
+
 [guld.io](guld.io)
 
 [TigoCTM](https://tigoctm.com/)
+
+[300E](https://300eholdings.com/)
 
 [linkedin](https://www.linkedin.com/in/ira-miller-5352668)
 
