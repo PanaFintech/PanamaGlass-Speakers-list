@@ -8,9 +8,9 @@
 
 ### Speakers:
 
- * Giuseppe Cicatelli
+ * [Giuseppe Cicatelli](https://github.com/Alexstang/PanamaGlass-Speakers-list/blob/master/2-24-2018-1100/Giuseppe-Cicatelli.md)
 
- * Randy Hilarski
+ * [Randy Hilarski](https://github.com/Alexstang/PanamaGlass-Speakers-list/blob/master/2-24-2018-1100/Randy-Hilarski.md)
  
  ## Time: Sat Feb 24th 11:00am
  
