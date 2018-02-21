@@ -18,7 +18,7 @@
 
 #### Links:
 
-[guld.io](guld.io)
+[guld](guld.io)
 
 [Bitt](https://www.bitt.com/)
 
