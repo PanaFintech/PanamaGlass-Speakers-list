@@ -12,7 +12,7 @@
  
  * [Aldo Antinori](https://github.com/Alexstang/PanamaGlass-Speakers-list/blob/master/2-24-2018-1400/Aldo-Antinori.md)
  
- * Jorge Farias(https://github.com/Alexstang/PanamaGlass-Speakers-list/blob/master/2-25-2018-0900/Jorge-Farias.md)
+ * [Jorge Farias](https://github.com/Alexstang/PanamaGlass-Speakers-list/blob/master/2-25-2018-0900/Jorge-Farias.md)
  
 ### Time: Sat Feb 24th 2:00pm
 
