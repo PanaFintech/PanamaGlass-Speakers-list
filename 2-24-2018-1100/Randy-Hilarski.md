@@ -2,7 +2,7 @@
 
 ![Randy-Hilarski](https://github.com/Alexstang/PanamaGlass-Speakers-list/blob/master/randy-hilarski.jpg)
 
-[TokenMagic](https://tokenmagic.io/)
+## [TokenMagic](https://tokenmagic.io/)
 
 ## Topic: Investment in Blockchain
 
