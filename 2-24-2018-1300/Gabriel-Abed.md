@@ -6,9 +6,9 @@
 
 ### Topic: Digital Dollar
 
-### Sat Feb 24 - 1:00pm 
+### Time: Sat Feb 24 - 1:00pm 
 
-#### Acommplishments:
+#### Achievements:
 
  * Founder and Director of [Bitt](https://www.bitt.com/) and Digital Asset Fund
  
