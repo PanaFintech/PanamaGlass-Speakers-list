@@ -6,12 +6,12 @@
  
 ## Topic: Blockchain Solutions for Corruption
  
-### Sat Feb 24. 4:30pm-5:00pm
+### Time: Sat Feb 24th 4:30pm
  
 ### Achievements:
  
-  * Co-Founder at Blockchain 360 Solutions
-  
+  * Co-Founder at [Blockchain 360 Solutions](http://www.blockchain360solutions.com/)
+   
   * Bachelor in Business Administration
 
  #### Links
