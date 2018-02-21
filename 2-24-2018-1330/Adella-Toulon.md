@@ -10,16 +10,18 @@
 
 #### Achievements:
  
- * Partner at Cogent Law Group
+ * Partner at [Cogent Law Group](http://www.cogentlaw.co/)
  
- * Chief operations officer at Coin Outlet,inc
+ * Chief operations officer at Coin Outlet
  
  * Co-Founder at Longlever Consulting
  
  #### Links
  
+ [Cogent Law Group](http://www.cogentlaw.co/)
+ 
  [Twitter](https://twitter.com/bitcoinkhaleesi?lang=en)
  
  [Linkedin](https://www.linkedin.com/in/adellatoulon/)
  
- [Cogent Law Group](http://www.cogentlaw.co/)
+ 
