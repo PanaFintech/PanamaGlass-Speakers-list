@@ -8,7 +8,7 @@
  
 ### Speakers:
 
- * [Gabriel Abed](
+ * [Gabriel Abed](https://github.com/Alexstang/PanamaGlass-Speakers-list/blob/master/2-24-2018-1300/Gabriel-Abed.md)
  
  * [Aldo Antinori](https://github.com/Alexstang/PanamaGlass-Speakers-list/blob/master/2-24-2018-1400/Aldo-Antinori.md)
  
