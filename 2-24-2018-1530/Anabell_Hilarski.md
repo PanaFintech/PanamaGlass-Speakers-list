@@ -6,13 +6,13 @@
 
 ### Topic: STEEM and Local Community
 
-### Sat Feb 24. 3:30pm - 4:00pm
+### Time: Sat Feb 24. 3:30pm - 4:00pm
 
 #### Achievements:
  
  * Co-Founder of 200 Social
  
- * Creator of course on Bitcoin on Steemit
+ * Creator of course on Bitcoin on [Steemit](https://steemit.com/@anahilarski)
  
  * Entrepeneur 
  
