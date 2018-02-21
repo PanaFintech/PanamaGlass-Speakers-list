@@ -6,7 +6,7 @@
 
 ## Topic: 100 Days of Transparency
 
-### Time: Sun Feb 25 10:00am
+### Time: Sun Feb 25th 10:00am
 
 #### Achievements: 
 
