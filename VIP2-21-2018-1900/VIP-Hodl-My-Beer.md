@@ -1,4 +1,4 @@
-# VIP Hodl my Beer
+# VIP HODL MY BEER
 
 ![VIP-HMB](https://github.com/Alexstang/PanamaGlass-Speakers-list/blob/master/VIP-HMB.jpg)
 
